@@ -214,4 +214,3 @@ For collaboration, ideas, or questions:
 
 **Together, let's build wealth with wisdom — and impact with intention. 🌱💚**
 
-ing page version** 🚀
